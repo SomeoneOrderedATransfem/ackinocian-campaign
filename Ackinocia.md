@@ -1,0 +1,1 @@
+Ackinocia is the main continent of this campaign. It has 2 Empires, the [[Ackinocian Empire]] and the [[Gaelic States]] 
